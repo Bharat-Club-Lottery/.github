@@ -22,8 +22,8 @@ Secure OTP login keeps your account protected.
 ### 💰 Real Rewards & Fast Payouts  
 Enjoy instant deposits & withdrawals with real cash prizes.
 
-### ⭐ Trusted by 4+ Million Players  
-Daily entertainment with honest gameplay.
+### ⭐ Trusted by 5+ Million Players  
+Wiht over 2lakh active players Daily with fair gameplay.
 
 ### 📱 Mobile-Friendly Design  
 Flawless on Android & iOS.
