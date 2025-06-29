@@ -47,7 +47,7 @@ Our **Wingo Prediction Tool** helps players make smarter choices with fair predi
 **Step 2:** Install the app and allow permissions  
 **Step 3:** Register or login with your mobile/email and OTP  
 
-🔑 Need help? [Login Guide](https://bhtclubs.com/bharat-club-login/)
+🔑 Need help? [Login Guide](https://bharatclub.co/)
 
 ---
 
