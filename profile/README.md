@@ -4,11 +4,11 @@ Welcome to **Bharat Club Game** – India's fastest-growing online lottery and c
 
 ---
 <p align="center">
-    <img src="https://bhtclubs.com/wp-content/uploads/2025/05/photo_2025-04-21_19-55-25.webp" alt="Bharat Club Game Lottery logo" style="max-width: 100%; height: auto;">
+    <img src="https://bharatclub.co/wp-content/uploads/2025/08/Bharat-Club-Game-Official-Logo.webp" alt="Bharat Club Game Lottery logo" style="max-width: 100%; height: auto;">
   </a>
 </p>
 
-**👉 [Register Now](https://www.bharatclub.pro/#/register?invitationCode=831582802852)** and start winning real rewards!
+**👉 [Register Now](https://bhtclublogin.com/#/register?invitationCode=842123225835)** and start winning real rewards!
 
 Claim Daily Free Gift Code 👉 [Bharat Club Gift Code](https://t.me/JennybhtBot)
 
@@ -34,20 +34,20 @@ Flawless on Android & iOS.
 
 Our **Wingo Prediction Tool** helps players make smarter choices with fair predictions.
 
-🔗 [Try the Prediction Tool](https://bhtclubs.com/bht-club-wingo-color-prediction-game/)  
-📘 [User Guide](https://bhtclubs.com/2025/05/05/bharat-club-prediction/)
+🔗 [Try the Prediction Tool](https://bharatclub.co/bharat-club-prediction/)  
+📘 [User Guide](https://bharatclub.co/bharat-club-prediction-guide/)
 
-![Prediction Tool](https://i0.wp.com/bhtclubs.com/wp-content/uploads/2025/05/Prediction-Result.webp?resize=1504%2C752&ssl=1)
+![Prediction Tool](https://bharatclub.co/wp-content/uploads/2025/08/Bharat-Club-Prediction-Tool-3.0.webp)
 
 ---
 
 ## 📥 How to Download & Login
 
-**Step 1:** Go to [https://bhtclubs.com](https://bhtclubs.com) and click **Download**  
+**Step 1:** Go to [https://bharatclub.co/](https://bharatclub.co/) and click **Download**  
 **Step 2:** Install the app and allow permissions  
 **Step 3:** Register or login with your mobile/email and OTP  
 
-🔑 Need help? [Login Guide](https://bharatclub.co/)
+🔑 Need help? [Login Guide](https://bharatclub.co/bharat-club-login/)
 
 ---
 
@@ -96,7 +96,7 @@ We use encrypted transactions and conduct regular audits for fairness.
 
 Bharat Club is more than just a game — it’s a trusted, secure, and exciting community.
 
-🎯 [Download Now](https://bhtclubs.com)  
-📝 [Register Now](http://www.bharatclub.top/#/register?invitationCode=831582802852)
+🎯 [Download Now](https://bharatclub.co/bharat-club-download/)  
+📝 [Register Now](https://bharatclub.co/bharat-club-register/)
 
 > *Disclaimer: Always play responsibly. We promote safe and responsible gaming practices.*
