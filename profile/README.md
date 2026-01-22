@@ -28,6 +28,14 @@ Wiht over 2lakh active players Daily with fair gameplay.
 ### 📱 Mobile-Friendly Design  
 Flawless on Android & iOS.
 
+### 📱 Our New Latest Platform for Philippines Player  
+# Pinoy365 - #1 Licensed & Trusted Online Casino Philippines 🇵🇭
+
+Welcome to the official profile of **Pinoy365**, the premier destination for secure and legal online gaming in the Philippines. We are committed to providing a transparent, fair, and high-quality experience for the Filipino gaming community.
+
+## 🚀 Quick Access
+- 🎰 **Official Website [Pinoy365](https://pinoy365casino.com/)**
+
 ---
 
 ## 🧠 Best Wingo Prediction Tool
